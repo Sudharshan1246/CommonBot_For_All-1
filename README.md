@@ -2,7 +2,7 @@
 
 ### COMMAN BOT FOR ALL MY SUBSCRIBERS With Pm Feature and settings Working One
 
-<p align="center"><a href="https://t.me/Mass_movie_request"><img src="[](https://telegra.ph/file/a7055927af890c47bd991.jpg)" width="500"></a></p>
+<p align="center"><a href="https://t.me/Mass_movie_request"><img src="https://telegra.ph/file/a7055927af890c47bd991.jpg" width="500"></a></p>
 
 # Introduction
 
